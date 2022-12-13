@@ -1,1 +1,1 @@
-https://minri-kim.github.io/rsschool-cv/cv
+https://minri-kim.github.io/rsschool-cv/
